@@ -7,5 +7,4 @@ INTEGRANTES DE EQUIPO:
 🙋‍♂️ PAREDEZ MENDOZA JUAN PABLO 1320114117
 🙋‍♂️ SEBASTIAN ILDEFONSO IRVING GREGORIO 1320114046
 
-
-https://64.media.tumblr.com/c32b189daf8a5d67ba9b332e7a6a3eec/6fac0bffd5a4e312-11/s1280x1920/dfb2046adef9385f711e9865e31fe96dd6f53a4d.gifv
+![Jack](https://media.tenor.com/3OuELqnK2tcAAAAM/jackfrost-jackfrostpersona.gif "Jack")
